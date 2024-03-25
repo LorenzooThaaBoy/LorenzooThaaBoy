@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @LorenzooThaaBoy
-- 👀 I’m interested in robotics, Maschine leanring, automation and code shit
-- 🌱 I’m currently learning C#, Phyton, C++ and java scrpit
-- 💞️ I’m looking to collaborate with nobody on nothing right now
-- 📫 How to reach me LorenzooThaaBoy #6343 (Discord) (fuck twitter)
+- 👀 I’m interested in robotics, Maschine learning, automation and databases
+- 🌱 I’m currently learning about, yo mama
+- 💞️ I’m looking to collaborate with NOBODY 
+- 📫 How to reach me, you cant, fuck you
 
 <!---
 LorenzooThaaBoy/LorenzooThaaBoy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
