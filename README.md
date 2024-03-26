@@ -1,4 +1,4 @@
-hahahaha, i can write whatever i want here, lol, penis penis penis penis
+I dont know bruh
 // @lorenzoothaaboy on discord
 <!---
 LorenzooThaaBoy/LorenzooThaaBoy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
