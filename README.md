@@ -1,4 +1,4 @@
-hahahaha penis, i can write whatever i want here, lol, fuck you dickhead
+hahahaha penis, i can write whatever i want here, lol, fuck you hahahahahahahahahahah
 // @lorenzoothaaboy on discord
 <!---
 LorenzooThaaBoy/LorenzooThaaBoy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
